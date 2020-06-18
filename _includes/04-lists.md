@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1.Listening music
+2.Learn new things
+3.Do excercise
